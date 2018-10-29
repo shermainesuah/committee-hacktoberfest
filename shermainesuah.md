@@ -9,5 +9,5 @@
 - Arts
 
  ## Why did you join STC?
- ヽ༼☉ل͜☉༽ﾉヽ༼☉ل͜☉༽ﾉヽ༼☉ل͜☉༽ﾉヽ༼☉ل͜☉༽ﾉヽ༼☉ل͜☉༽ﾉヽ༼☉ل͜☉༽ﾉ
+ To meet more new people & learn new stuffs
 
